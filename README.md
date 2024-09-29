@@ -10,7 +10,7 @@ when i entered the study, i knew the truth of human nature.
 
 now...
 
-gala..
+[gala](https://thesignoffour.carrd.co/)..
 
 the game is at its end..
 
