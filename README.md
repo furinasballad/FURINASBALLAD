@@ -2,7 +2,7 @@
 
 mask credit: @guildeine
 
-pretty girls make graves ... 
+pretty girls make [graves](https://retrospring.net/@spacetalkingjive) ... 
 
 ... when he picked up the hunting rifle, i uncovered the truth of fear.
 
